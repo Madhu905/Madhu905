@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Madhu905
-- 👀 I’m interested in dancing
+- 👀 I’m interested in learning
 - 🌱 I’m currently learning manual testing
 - 💞️ I’m looking to collaborate on different projects with team mates
 - 📫 How to reach me 
